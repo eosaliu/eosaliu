@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @eosaliu
-- 👀 I’m interested in solving problems
+- 👀 I’m passionate about offering ease
 - 🌱 I’m currently learning Product design
 - 💞️ I’m looking to collaborate on ground breaking product development
 - 📫 How to reach me eniolaolashile@gmail.com
