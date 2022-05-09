@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @eosaliu
 - 👀 I’m passionate about offering ease
 - 🌱 I’m currently learning Product design
-- 💞️ I’m looking to collaborate on ground breaking product development
+- 💞️ I’m looking to collaborate on product development that will make a global change
 - 📫 How to reach me eniolaolashile@gmail.com
 
 <!---
